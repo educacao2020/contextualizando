@@ -1,5 +1,5 @@
 
-					# Aiabá 			 						 						 						
+# Aiabá 			 						 						 						
 							
 Aiabá é sempre um galho entre o Nilo e o Amazonas, subiu aos céus em seu espelho caboclo-terra e forjou das ondas da FM-cordas, o cordel satírico do Assaré. Um índio, filho de Funai-mata-mata, requer alforria e bate tam,tam,tam na pedra Içu-cabeça de pau oco. Aiabá sorri no V.T. e arriba…
 Lá das nuvens açoprateadas, ela nos conta a história de como sua mãe sobreviveu à tribo do feiticeiro Edi-pô.
