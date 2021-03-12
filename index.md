@@ -1,4 +1,4 @@
-## Welcome to GitHub Pages
+## Textos em Contextos
 
 You can use the [editor on GitHub](https://github.com/educacao2020/textos/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
 
